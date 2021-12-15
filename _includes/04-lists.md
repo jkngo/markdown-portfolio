@@ -1,0 +1,6 @@
+- Favorite Books / Series
+  - Inda series by Sherwood Smith
+  - Imperial Radch series by Ann Leckie
+  - Sunshine by Robin McKinley
+  - Abhorsen series by Garth Nix
+  - Craft sequence by Max Gladstone
